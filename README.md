@@ -1,2 +1,2 @@
-# smksumbergedang.-gmail.com
+# smksumbergedang@gmail.com
 SMK SUMBER GEDANG JURUSAN TATA BUSANA
